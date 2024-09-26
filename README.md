@@ -23,6 +23,6 @@ My favorite band is The Beatles ![The Beatles](https://cdn.britannica.com/92/172
 5. The notebook
 
    - ---
-  # My top 5 favorite singers
- 
-  1. ![Ariana Grande](https://en.wikipedia.org/wiki/Ariana_Grande#/media/File:Ariana_Grande_at_the_Met_Gala_2024_(1).jpg)
+  # Details about me!
+I am interested in films such as photgraphy and videography, particularly 90's and 00's film. I'm not really active in social media but if you message me, I will immediately respond!
+   
